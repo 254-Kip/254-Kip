@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @254-Kip
+- 👋 Hi, I’m Ole The Great
 - 👀 I’m interested in ... anything affiliate
 - 🌱 I’m currently learning ... all monkey business
 - 💞️ I’m looking to collaborate on ...Affiliate business
