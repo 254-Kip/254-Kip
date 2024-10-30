@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ole The Great
-- 👀 I’m interested in ... anything affiliate
+- 👀 I’m interested in ... anything Athletics reach me out
 - 🌱 I’m currently learning ... all monkey business
-- 💞️ I’m looking to collaborate on ...Affiliate business
+- 💞️ I’m looking to collaborate on ...Athletics
 - 📫 How to reach me ...olethegreat13@gmail.com
 - 😄 Pronouns: ...he/ she
 - ⚡ Fun fact: ...jogger
